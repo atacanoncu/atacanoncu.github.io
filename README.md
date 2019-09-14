@@ -1,1 +1,0 @@
-# atacanoncu.github.io
